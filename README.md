@@ -74,7 +74,9 @@ Thanks to **Cognifyz Technologies** for providing this internship opportunity to
 
 ---
 
+🔗 LinkedIn Post
 
+https://www.linkedin.com/posts/pawan-pushkar-8b32a73b4_cognifyz-cognifyztech-cognifyztechnologies-ugcPost-7445159114890129409-Uxng?utm_source=share&utm_medium=member_desktop&rcm=ACoAAGUidkcBuEso8AO2qTufjuY5zv3MjncyKf0
 
 ---
 
